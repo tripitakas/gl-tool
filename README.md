@@ -25,4 +25,5 @@
 2. DocxStdTxt正字文本
 3. Text2Page通字文本
 
-详见链接: https://pan.baidu.com/s/1uCuILHblaR-Y70IV6IF58g(提取码: lrw5)
+详见链接: https://pan.baidu.com/s/1uCuILHblaR-Y70IV6IF58g 
+(提取码: lrw5)
